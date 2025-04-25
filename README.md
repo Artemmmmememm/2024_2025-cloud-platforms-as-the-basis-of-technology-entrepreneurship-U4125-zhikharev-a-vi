@@ -1,0 +1,1 @@
+# 2024_2025-cloud-platforms-as-the-basis-of-technology-entrepreneurship-U4125-zhikharev-a-vi
